@@ -1,0 +1,1 @@
+# Sumbar_compyuter
